@@ -6,3 +6,5 @@ Hi Roque this is cruz
 Hi i noticed that is was you! :)
 
 you should buy me some tacos man XD
+
+But you dont even pick my ass up. :(
