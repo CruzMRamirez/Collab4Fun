@@ -18,3 +18,5 @@ After all of this practice heck yeah ^(0^0)^
 Before git pull try git status
 
 Gl
+
+you picking me up or i go? 
