@@ -14,3 +14,7 @@ If you buy me some tacos hell yeah man XP
 i would but you're not even dowwnnnn 
 
 After all of this practice heck yeah ^(0^0)^
+
+Before git pull try git status
+
+Gl
