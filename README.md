@@ -20,3 +20,5 @@ Before git pull try git status
 Gl
 
 you picking me up or i go? 
+
+Either way. Now going to lock master.
